@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aaleksa1
-- 👀 I’m interested in Fusion and coding
+- 👀 I’m interested in Fusion and Coding
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me andrius.aleksa1@gmail.com
